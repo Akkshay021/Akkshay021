@@ -1,5 +1,5 @@
 # 💫 About Me:
-Research Associate 2 | Market Research | Business Analyst
+Research Associate 2 | Market Research | Business Analyst | Data Analyst
 
 
 ## 🌐 Socials:
